@@ -1,0 +1,1 @@
+# gaza-competitor-research
